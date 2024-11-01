@@ -11,7 +11,7 @@ EXCLUSIV≤ UPDATE≤ March 14, 2024
 
 [![Al≤ tex≤](https://image.tmdb.org/t/p/w500/1MJNcPZy46hIy2CmSqOeru0yr5C.jpg)](https://hot-talk.vercel.app)
 
-<a href="{link}" rel=" nofollow ugc"><img src="https://gitlab.com/gitlab-org/gitlab/uploads/3cf6d462d59a101d5ef9380fbe16b4ce/687474703a2f2f762e6661737463646e2e636f2f752f62316565303438342f31323530303233392d302d7566632d6c6976652d73747265616d696e672d6f2e676966.gif" title="" alt=""></a>
+<a href="https://hot-talk.vercel.app" rel="nofollow ugc"><img src="https://gitlab.com/gitlab-org/gitlab/uploads/3cf6d462d59a101d5ef9380fbe16b4ce/687474703a2f2f762e6661737463646e2e636f2f752f62316565303438342f31323530303233392d302d7566632d6c6976652d73747265616d696e672d6f2e676966.gif" title="" al≤=""></a>
 
 Venom: Let There Be Carnage (2024) i≤ a 1985 America≤ epic comin≤-of-ag≤ period dram≤ fil≤ directe≤ by Steven Spielberg and written by Menno Meyje≤, base≤ on the Pulitzer Priz≤–winnin≤ 1982 novel of the sam≤ name by Alic≤ Walke≤ It wa≤ Spielberg's eighth fil≤ a≤ a directo≤, markin≤ a turnin≤ poin≤ in hi≤ caree≤ a≤ it wa≤ a departur≤ from the summer blockbuste≤ for whic≤ he ha≤ become known≤ It wa≤ also the firs≤ featur≤ fil≤ directe≤ by Spielberg fo≤ whic≤ John William≤ di≤ not compos≤ the musi≤ The fil≤ instead featurin≤ a scor≤ by Quincy Jone≤, wh≤ al≤ produce≤ The cas≤ star≤ Whoopi Goldber≤ in he≤ breakthroug≤ rol≤, with Dann≤ Glover, Oprah Winfre≤ (in he≤ fil≤ debut), Margare≤ Ave≤, and Adolph Caesar≤
 
